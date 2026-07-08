@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CAMM780316HTCSRS01
+CAMM780316HTCSRS01
